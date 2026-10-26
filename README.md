@@ -1,0 +1,1 @@
+# file-C-Users-Usuario-2003-Downloads-Analizador-20universal-20de-20datos-20-1-.html
